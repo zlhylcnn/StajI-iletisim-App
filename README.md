@@ -1,0 +1,1 @@
+# StajI-iletisim-App
